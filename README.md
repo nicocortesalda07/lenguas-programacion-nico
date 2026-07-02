@@ -1,1 +1,0 @@
-# lenguas-programacion-nico
